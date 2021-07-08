@@ -1,1 +1,1 @@
-# rsschool-cv
+https://sypha11.github.io/rsschool-cv/cv
